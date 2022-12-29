@@ -15,3 +15,8 @@ just one more step
    i will be great and i will do great at microverse 
     i will be greater than my former years at programming 
  i willdo better today i believe say jesus dey myback.
+
+
+this is just common sense 
+
+we must do better today
