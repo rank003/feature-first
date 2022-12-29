@@ -10,3 +10,8 @@ na you matter pass now OK?
 
 
 just one more step
+ lets see...... where do we go from here now 
+  i want to be doing reat at microverse so that i can become a greater version of myself
+   i will be great and i will do great at microverse 
+    i will be greater than my former years at programming 
+ i willdo better today i believe say jesus dey myback.
